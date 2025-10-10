@@ -26,5 +26,6 @@
   - We often trust "System 1" thinking too much.
   - Anchoring bias can affect even experts.
 - **Favorite Quotes:**
-  > “Nothing in life is as important as you think it is, while you are thinking about it.”
+  - > “Nothing in life is as important as you think it is, while you are thinking about it.”
+  - > “”
 - **Personal Notes:** Helped me reflect on how biases affect cyber risk analysis too.
