@@ -1,8 +1,8 @@
-# Books of 2024
+# Books of 2025
 
 ## *Kunsten at være fucking ærlig* by *Mark Manson*
 - **Original Title:** Models: Attract Women Through Honesty
-- **Date Read:** 18th May 2024
+- **Date Read:** 18th May 2025
 - **Genre:** Dating advice book / Self help
 - **Language:** Danish
 - **Format:** (e.g., Hardcover, eBook, Audiobook)
