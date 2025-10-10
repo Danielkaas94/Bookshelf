@@ -3,8 +3,8 @@
 Welcome to my reading journal! This is where I keep track of the books I've read, reflect on key takeaways, and share personal notes.
 
 ## 📆 Years
-- [2025](Books/2025.md)
-- [2024](Books/2024.md)
+- [2025](Books/2025/README.md)
+- [2024](Books/2024/README.md)
 
 ## 🔢 Stats
 - [Reading Summary](stats/summary.md)
