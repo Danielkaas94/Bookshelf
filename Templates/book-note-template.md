@@ -1,8 +1,10 @@
 # 📖 Book Entry Template
 
 ## *Title* by *Author*
+- **Original Title:** (If you didn't read in original language)
 - **Date Read:**
 - **Genre:**
+- **Language:** Danish
 - **Format:** (e.g., Hardcover, eBook, Audiobook)
 - **Rating:** ★★★☆☆
 - **Summary:** *(2-3 sentences of your own words)*
@@ -10,7 +12,8 @@
   - Point 1
   - Point 2
 - **Favorite Quotes:**
-  > “Quote here.”
+  - > “Quote here.”
+  - > “”
 - **Personal Notes:**
 
 ---
