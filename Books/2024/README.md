@@ -1,0 +1,49 @@
+# Books of 2024
+
+## *Kunsten at være fucking ærlig* by *Mark Manson*
+- **Original Title:** Models: Attract Women Through Honesty
+- **Date Read:** 18th May 2024
+- **Genre:** Dating advice book / Self help
+- **Language:** Danish
+- **Format:** (e.g., Hardcover, eBook, Audiobook)
+- **Rating:** ★★★★☆
+- **Summary:** *Focuses on emotional connections rather than manipulative tactics. It emphasizes being genuine and self-improving to attract women authentically.*
+- **Key Takeaways:**
+  - *Hold dig for næsen*👃👋
+  - Du er ikke et offer / You are not a victim
+  - Maybe it was a gift, that she left you... Good Riddance 🎁
+- **Favorite Quotes:**
+  - > “You cannot be a powerful and life-changing presence to some people without being a joke or an embarrassment to others.”
+  - > “Challenge yourself to find the good and beautiful thing inside of everyone. It’s there. It’s your job to find it. Not their job to show you.”
+  - > “Rejection exists for a reason — it’s a means to keep people apart who are not good for each other.”
+  - > “The less you talk about your shame, the more of it you have.”
+  - > “Life shrinks and expands in proportion to one’s courage.” - Anais Nin”
+  - > “Humans are attracted to each other’s rough edges.”
+  - > “I see every rejection simply as some form of incompatibility. Whether she thinks I’m a total creep, or she’s crazy about me but we live on different continents, or she’s in a horrible mood when I ask her out, or she thinks I’m cute but has different values and interests than me — whatever the reason, if a woman ever rejects me, it’s because she’s not compatible with me. It may be a permanent incompatibility. It may be a temporary incompatibility. But the point is that if she liked me enough, she’d be willing to work at making it happen with me. And if she doesn’t, then that just means it’s wrong person — or right person, wrong time. And that’s fine.”
+  - > “Man sacrifices his health in order to make money. Then he sacrifices his money to recuperate his health. And then he is so anxious about the future that he does not enjoy the present; the result being that he does not live in the present or the future; he lives as if he is never going to die, and then dies having never really lived.” - The Dalai Lama”
+  - > “Intentions are always speaking ten times louder than your actual words. What are they saying?”
+  - > “The catch is that everything you say must be as authentic as possible. There’s no shortcut. There are no tricks. You say it because you mean it and mean it because you say it. The more nervous it makes you, the better, because it means you’re being authentic and making yourself vulnerable.”
+  - > “Get out there and expose yourself. Open yourself up and find what makes you happy. Yes, that will mean you’ll probably get hurt. But so what? The best things in life don’t come easily.”
+  - > “The first step to being more attractive is to see rejection as a means to eliminate women who won't make you happy from your life. It's a blessing, not a curse.”
+  - > “Every second I spend sitting around feeling distant from my true desires, avoiding the world and being afraid to engage it, is a second that I’m forfeiting the biggest gift of all: my time here in this life.”
+  - > “Everybody on this planet shares a handful of universal emotional realities: ambition, shame, alienation, loneliness, achievement, regret, hardship, friendship, love, heartbreak. We’ve all experienced it. The facts change, the feelings are the same.”
+  - > “And ultimately, that’s what women want, a strong, independent, high status male — a “doesn’t take shit from anybody” bad boy — but they want this bad boy to have a depth and a sensitivity that they only open up and show when they’re around her.”
+  - > “Instead of thinking, “I wonder if she’ll like me,” think, “I wonder what she’s like?”
+  - > “There are three ways in which we are honest. And those three ways will make up the bulk of this book. The three ways are 1) living based on our values (lifestyle); 2) becoming comfortable with our intentions (boldness); and 3) by expressing our sexuality freely (communication).”
+  - > “And again, for the love of god, if you don’t find her attractive, don’t pursue her.”
+  - > “The percentage of women who are Receptive to you will increase proportionally to the quality of your lifestyle, your social status and your looks. The percentage of women that you’re able to move from Neutral to Receptive will be proportional to how good your “game” is, or how well you’re able to communicate and express yourself with women. And your ability to sort through each type of women and meet as many as possible will be determined by how fearless and bold you are when it comes to meeting women.”
+  - > “The two go together. You cannot be an attractive and life-changing presence to some women without being a joke or an embarrassment to others. You simply can’t. You have to be controversial. You have to polarize. It’s the name of the game. And getting good at the game is learning to open yourself up enough emotionally, learning”
+  - > “Ask yourself this: why would you want to be intimate with someone who doesn't appreciate you? Why would you ever settle for such a person? Because she's hot? Come on, have a little more self-respect. Have some higher standards.”
+  - > “Napoleon Hill wrote a famous section in his classic work Think and Grow Rich called “Sexual Transfiguration.” Hill noticed and theorized that extremely successful men also had extremely high sex drives. And not only did they have very high sex drives, but they also channeled this sexual energy into their work and their accomplishments. Often they would abstain from sex or masturbation for long periods of time and would, therefore, feel more energized.”
+  - > “And when it is a gift, when it is honest, she recognizes and appreciates a man who genuinely appreciates her. These men are rare. Women are people too (radical idea, I know). And as people, we all value those who genuinely value us, not expecting something in return.”
+  - > “That my most important values are honesty, empathy, and intellectual curiosity. That I’m unwilling to tolerate women who don’t make me happy, no matter how hot they are.”
+  - > “You are going to be incompatible with most”
+  - > “How attractive a man is is inversely proportional to how needy he is. The more needy in his life, the less attractive and vice-versa.”
+  - > “James is a nice guy. But he tends to be needy in his relationships and has what we would call a high level of investment with any woman that he meets. Whenever he dates a woman, he will rearrange his entire schedule at her whim. He will buy her gifts and spend most of his paycheck on the nicest dinners for her. He’ll forgo plans with his guy friends and if the woman he dates gets angry, he’ll sit patiently and listen to her vent all of her frustrations to him, agreeing with her constantly in a futile desperation that she may feel better. Even when he feels that she’s being irrational or treating him unfairly, he won’t say anything because he doesn’t want her to be upset with him. As a result, despite caring for him, James’s girlfriends rarely respect him. And sooner or later — usually sooner — they dump him. When James gets dumped, he becomes distraught and depressed. He’s often inconsolable and drinks too much. Usually, he doesn’t feel better again until he meets another woman and the entire cycle repeats itself.”
+  - > “Being slapped also taught me that you can’t always control how people react to you. Some people are completely out of their minds or they behave very inappropriately. You can’t help this. You cannot control what happens in every interaction. The sooner you accept this, the better off you will be.”
+  - > “Emerson once wrote, “What you do speaks so loudly I cannot hear what you say.”
+  - > “Will be determined by how fearless and bold you are when it comes to meeting women.”
+- **Personal Notes:**
+  - Vær ikke klæbrig / Don't be clingy.
+  - Don't try to be cool, honestly don't try acting anything, you either are or you are not.
+  - Might be a book you should read again after a few years.
