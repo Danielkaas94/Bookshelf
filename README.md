@@ -32,6 +32,7 @@ Finally, Pink reminds us not to treat reading as a chore or performance metric, 
 # [Why Audiobooks Feel Different From Reading](https://www.youtube.com/watch?v=khSTV764kjQ)
 [![Why Audiobooks Feel Different From Reading](https://img.youtube.com/vi/khSTV764kjQ/maxresdefault.jpg)](https://youtu.be/khSTV764kjQ)
 
+Explores the surprisingly intense debate around audiobooks. This thought-provoking video examines how listening versus reading impacts comprehension and memory. Discover if different reading modalities truly matter. Comprehension is comprehension?
 
 ---
 
