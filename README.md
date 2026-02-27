@@ -43,6 +43,10 @@ Discuss the male reading crisis
 
 ---
 
+# [Why you should write a book (even if no one reads it)](https://www.youtube.com/watch?v=y8tvLLU0P1c)
+[![Why you should write a book (even if no one reads it)](https://img.youtube.com/vi/y8tvLLU0P1c/maxresdefault.jpg)](https://youtu.be/y8tvLLU0P1c)
+
+---
 
 ## 📆 Years
 - [2025](Books/2025/README.md)
