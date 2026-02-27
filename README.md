@@ -36,6 +36,14 @@ Explores the surprisingly intense debate around audiobooks. This thought-provoki
 
 ---
 
+# [How to Start Reading Again](https://www.youtube.com/watch?v=0BwRauAB6Zc)
+[![How to Start Reading Again](https://img.youtube.com/vi/0BwRauAB6Zc/maxresdefault.jpg)](https://youtu.be/khS0BwRauAB6ZcTV764kjQ)
+
+Discuss the male reading crisis
+
+---
+
+
 ## 📆 Years
 - [2025](Books/2025/README.md)
 - [2024](Books/2024/README.md)
