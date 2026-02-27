@@ -29,6 +29,12 @@ Finally, Pink reminds us not to treat reading as a chore or performance metric, 
 
 ---
 
+# [Why Audiobooks Feel Different From Reading](https://www.youtube.com/watch?v=khSTV764kjQ)
+[![Why Audiobooks Feel Different From Reading](https://img.youtube.com/vi/khSTV764kjQ/maxresdefault.jpg)](https://youtu.be/khSTV764kjQ)
+
+
+---
+
 ## 📆 Years
 - [2025](Books/2025/README.md)
 - [2024](Books/2024/README.md)
